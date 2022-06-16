@@ -6,7 +6,7 @@ This is a scammer and is selling "sources" the guy claims he is from "Thailand" 
 
 
 
-this guy is a fucking looser 🤖
+this guy is a fucking loser 🤖
 
 heres the proof right here of scamming him out of his money👿
 https://prnt.sc/26t9l1v
